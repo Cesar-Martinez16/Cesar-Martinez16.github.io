@@ -1,10 +1,1 @@
 # Cesar-Martinez16.github.io
-Tengo 19 años, mi mamá me dio a la vida cuando ella tenía 17 años, nací el 16 de junio de 2003, tengo dos hermanos, uno de ellos se llama Santiago y el otro (qué es el más pequeño) se llama Sebastian.
-
-Desde muy pequeño he sido un gran fan de los dinosaurios, es algo ficticio que me gusta demasiado, tenía una colección de muñecos, pero los done cuando crecí. Algo que también me ha gustado demasiado, es el tema de la magia, harry potter es una de mis sagas favoritas, son realmente fantásticas las películas, como te envuelve la trama y la cantidad de momentos que causan demasiado entusiasmo.
-
-Referente a mi música favorita, he sido muy fan de la música electrónica, últimamente no es lo que más escucho, ya que el reggaetón llego a apoderarse de mi, aunque igual disfruto muchísimo de otros géneros, como el pop, pop en inglés, la música clásica, e incluso el rock and roll, pero quien de verdad se apodera de mis oídos, es Kenia Guadalupe Flores Osuna mejor conocida como Kenia Os, es una chica realmente linda, la cual admiro, el cómo pudo volver a crecer a pesar de su pasado, fue muy conmovedor, y me demuestra que la superación es algo que realmente existe si te lo propones.
-
-En cuanto a mi gusto por géneros de películas, soy gran fan de las películas de terror y suspenso, me encantan muchísimo, desde las del conjuro, hasta las de viernes 13, debo decir que me gusta sentir la sensación de espanto, es escalofriante y divertido, así que mis idas al cine a ver ese tipo de películas, me siento como si estuviera en una feria.
-
-Actualmente estoy cursando la universidad, es mi primer semestre, estoy algo nervioso porque es algo nuevo, nuevas amistades, nuevos profesores, nuevos recuerdos, deseo que me vaya de maravilla, sé que eso depende de mi, pero sé que con dedicación lo lograre, quizás no quería estar en la especialidad que estoy ahora mismo, pero me dejaré llevar, siento que a veces las cosas pasan por algo, y quizás la enfermería no era para mi, y lo que debo de seguir es la administración, pero eso es algo que solo el tiempo me dirá.
